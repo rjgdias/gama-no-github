@@ -1,0 +1,1 @@
+Até o momento estou achando fácil o curso, porém sei que mais pra frente vai ser mais complicado.
